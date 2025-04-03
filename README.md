@@ -1,1 +1,1 @@
-# jornada-a-sessibilidade-
+# jornada-a-acessibilidade-
